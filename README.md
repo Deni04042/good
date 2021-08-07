@@ -1,0 +1,2 @@
+# good
+Selalu menyenangkan
